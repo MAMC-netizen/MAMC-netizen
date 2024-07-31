@@ -8,4 +8,4 @@
 
 -00001118470199sp@al.educacao.sp.gov.br
 
-![]https://tenor.com/pt-BR/view/dog-gif-22276380
+![](https://tenor.com/pt-BR/view/dog-gif-22276380)
